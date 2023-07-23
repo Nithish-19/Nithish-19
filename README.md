@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nithish-19
-- 👀 I’m interested in DATA ANALYTICS & DESIGNING
+- 👀 I’m interested in DATA ANALYTICS & GRAPHIC DESIGNING
 - 🌱 I’m currently learning ... WEB DEVELOPMENT 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... by Mail - mr.nithish26@gmail.com
